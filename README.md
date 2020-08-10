@@ -11,5 +11,8 @@ Import ye codes, import ye codes!
 
 (===> Enjoy! <===)
 
+Our Final Report: https://docs.google.com/document/d/1jIuMf9BgNKjeGmN9RJ-vpDSDALTMjY5TQpSnUoCBal4
+
 Daniel's DonkeyCar = https://www.youtube.com/watch?v=49aI91WKtxU
+
 Mohamed's JetBot Demos = https://www.youtube.com/watch?v=UcuN4wzYEwE     https://www.youtube.com/watch?v=PpcwAPOWF3E
